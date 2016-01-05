@@ -1,0 +1,1 @@
+Firmware original en formato FTF del Xperia X8 de TELCEL - México.
